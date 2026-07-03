@@ -1,4 +1,4 @@
-# 
+# Oficial IObit Uninstaller plantillas para Mac OS | Avanzado IObit Uninstaller plantillas para PC Windows. Con optimización de registro y temas personalizados — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
